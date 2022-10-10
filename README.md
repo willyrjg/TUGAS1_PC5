@@ -1,1 +1,4 @@
-![Screenshot (153)](https://user-images.githubusercontent.com/77451420/194840661-90d74e64-dc2e-41b8-925e-36898646fa0e.png)
+Nama : Willy Rajagukguk
+Nim  : 201401091
+
+![Screenshot (154)](https://user-images.githubusercontent.com/77451420/194841059-09a7337e-1ae3-4bfc-ae28-9607a01e230c.png)
